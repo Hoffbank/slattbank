@@ -1,5 +1,5 @@
 God is the greatest
 Love God with all your heart
-And study the wor
+And study the word
 loving God
-
+Love Jeus
